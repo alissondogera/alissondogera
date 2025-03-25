@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alissondogera
-- 👀 I’m interested in pussy
+- 👀 I’m interested in cat´s
 - 🌱 I’m currently learning bible
 - 💞️ I’m looking to collaborate on (┬┬﹏┬┬)
 - 📫 How to reach me (╯°□°）╯︵ ┻━┻
